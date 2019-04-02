@@ -14,11 +14,11 @@ Master 毕业，物品全新货，使用了一年至一年半
 
    ![](https://images-na.ssl-images-amazon.com/images/I/61F1bNNaOuL._SL1500_.jpg)
 
-3. [dell 显示器 可旋转 90 - 270 度 Dell U2415 24-Inch 1920 x 1200 LED Monitor](https://www.amazon.com/Dell-U2415-24-Inch-1920-Monitor/dp/B00NZTKOQI/ref=olp_product_details?_encoding=UTF8&me=)
+3. ~~[dell 显示器 可旋转 90 - 270 度 Dell U2415 24-Inch 1920 x 1200 LED Monitor]~~(https://www.amazon.com/Dell-U2415-24-Inch-1920-Monitor/dp/B00NZTKOQI/ref=olp_product_details?_encoding=UTF8&me=)
 
   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/151340go323qlkg3q2go38.png)
 
-4. 三星显示器 27 寸 Samsung LC27F398FWNXZA Samsung C27F398 27" Curved Monitor
+4. ~~三星显示器 27 寸 Samsung LC27F398FWNXZA Samsung C27F398 27" Curved Monitor~~
   <https://www.amazon.com/Samsung-LC27F398FWNXZA-C27F398-Curved-Monitor/dp/B01CX26WIG/ref=olp_product_details?_encoding=UTF8&me=>
 
   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/151319hdlil4xz4nddd4oc.png)
@@ -32,7 +32,7 @@ Master 毕业，物品全新货，使用了一年至一年半
 
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025024mv0zbnczii6d2g0d.jpg)
 
-7. 餐桌+两张椅子
+7. ~~餐桌+两张椅子~~
 
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025022smuc1wa119wuf16a.jpg)
 
