@@ -53,9 +53,7 @@ Master 毕业，物品全新货，使用了一年至一年半
    ![](https://images-na.ssl-images-amazon.com/images/I/51Jmnb6o9PL._SX90_.jpg)
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025022smuc1wa119wuf16a.jpg)
 
-2. 晾衣杆
-
-   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/155546m17zjz7zpkopu1j7.png)
+2. ~~晾衣杆~~
 
 3. 衣架
 
