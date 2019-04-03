@@ -32,9 +32,7 @@ Master 毕业，物品全新货，使用了一年至一年半
 
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025024mv0zbnczii6d2g0d.jpg)
 
-7. 餐桌+两张椅子
-
-   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025022smuc1wa119wuf16a.jpg)
+7. ~~餐桌+两张椅子~~
 
 8. 床+床垫+枕芯（前两者只能一起买）
 
@@ -53,6 +51,7 @@ Master 毕业，物品全新货，使用了一年至一年半
 1. 厨具 - 刀、剪刀、锅套件、玻璃碗套件
 
    ![](https://images-na.ssl-images-amazon.com/images/I/51Jmnb6o9PL._SX90_.jpg)
+   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025022smuc1wa119wuf16a.jpg)
 
 2. 晾衣杆
 
