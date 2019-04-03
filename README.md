@@ -18,10 +18,7 @@ Master 毕业，物品全新货，使用了一年至一年半
 
   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/151340go323qlkg3q2go38.png)
 
-4. 三星显示器 27 寸 Samsung LC27F398FWNXZA Samsung C27F398 27" Curved Monitor
-  <https://www.amazon.com/Samsung-LC27F398FWNXZA-C27F398-Curved-Monitor/dp/B01CX26WIG/ref=olp_product_details?_encoding=UTF8&me=>
-
-  ![](http://www.ohioabc.com/data/attachment/forum/201904/02/151319hdlil4xz4nddd4oc.png)
+4. ~~三星显示器 27 寸 Samsung LC27F398FWNXZA Samsung C27F398 27" Curved Monitor~~
 
 5. 衣柜 IKEA HENSVIK wardrobe Deep enough to hold standard-sized adult hangers.
   https://www.pinterest.com/pin/24488391698932781/
@@ -45,6 +42,8 @@ Master 毕业，物品全新货，使用了一年至一年半
   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025020ldxao1xmj1soerii.jpg)
 
 9. 小型电脑椅
+
+10. 微波炉
 
 ## 小件（大件买了可送点小件）
 
@@ -75,7 +74,7 @@ Master 毕业，物品全新货，使用了一年至一年半
 
    ![](https://images-na.ssl-images-amazon.com/images/I/41ZXGdfBBkL._SX90_.jpg)
 
-9. 锤子、螺丝刀（一套装备）10. 微波炉
+9. 锤子、螺丝刀（一套装备）
 
 ## 可加微信
 
