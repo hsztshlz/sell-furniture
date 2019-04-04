@@ -18,10 +18,6 @@ Master 毕业，物品全新货，使用了一年至一年半
 
    ![](https://images-na.ssl-images-amazon.com/images/I/41LngE1A5VL._SY180_.jpg)
 
-4. ~~[dell 显示器 可旋转 90 - 270 度 Dell U2415 24-Inch 1920 x 1200 LED Monitor]~~
-
-5. ~~三星显示器 27 寸 Samsung LC27F398FWNXZA Samsung C27F398 27" Curved Monitor~~
-
 6. 衣柜 IKEA HENSVIK wardrobe Deep enough to hold standard-sized adult hangers.
   https://www.pinterest.com/pin/24488391698932781/
 
@@ -30,8 +26,6 @@ Master 毕业，物品全新货，使用了一年至一年半
 7. 木质书桌
 
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025024mv0zbnczii6d2g0d.jpg)
-
-8. ~~餐桌+两张椅子~~
 
 9. 床+床垫+枕芯（前两者只能一起买）
 
@@ -43,16 +37,12 @@ Master 毕业，物品全新货，使用了一年至一年半
 
   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025020ldxao1xmj1soerii.jpg)
 
-10. ~~微波炉~~
-
 ## 小件（大件买了可送点小件）
 
 1. 厨具 - 刀、剪刀、锅套件、玻璃碗套件
 
    ![](https://images-na.ssl-images-amazon.com/images/I/51Jmnb6o9PL._SX90_.jpg)
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025022smuc1wa119wuf16a.jpg)
-
-2. ~~晾衣杆~~
 
 3. 衣架
 
