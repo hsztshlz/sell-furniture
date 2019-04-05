@@ -4,8 +4,10 @@ Master 毕业，物品全新货，使用了一年至一年半
 
 ## 大件
 
-1. 办公椅 La-Z-Boy La-Z Boy Brahms Bonded leather Task Chair, Black 
+1. 办公椅 Office Chair. La-Z Boy Brahms Bonded leather Task Chair, Black
 
+   [Sell Link](https://letgo.onelink.me/O2PG/3d3bcbd1)
+   
    https://www.staples.com/La-Z-Boy-Brahms-Chair-Black/product_2720424
 
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/151617ioxko6qpild6iyzy.png)
@@ -14,7 +16,7 @@ Master 毕业，物品全新货，使用了一年至一年半
 
    ![](https://images-na.ssl-images-amazon.com/images/I/61F1bNNaOuL._SL1500_.jpg)
 
-3. 电脑椅
+3. 电脑椅 AmazonBasics Mid-Back Black Mesh Chair [Sell Link](https://letgo.onelink.me/O2PG/df6ecb8d)
 
    ![](https://images-na.ssl-images-amazon.com/images/I/41LngE1A5VL._SY180_.jpg)
 
