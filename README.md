@@ -16,20 +16,20 @@ Master 毕业，物品全新货，使用了一年至一年半
 
    ![](https://images-na.ssl-images-amazon.com/images/I/61F1bNNaOuL._SL1500_.jpg)
 
-3. 电脑椅 AmazonBasics Mid-Back Black Mesh Chair [Sell Link](https://letgo.onelink.me/O2PG/df6ecb8d)
+3. $29 电脑椅 AmazonBasics Mid-Back Black Mesh Chair [Sell Link](https://letgo.onelink.me/O2PG/df6ecb8d)
 
    ![](https://images-na.ssl-images-amazon.com/images/I/41LngE1A5VL._SY180_.jpg)
 
-6. 衣柜 IKEA HENSVIK wardrobe Deep enough to hold standard-sized adult hangers.
+6. $59 衣柜 IKEA HENSVIK wardrobe Deep enough to hold standard-sized adult hangers.
   https://www.pinterest.com/pin/24488391698932781/
 
   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/024740ecolabn1lj3dbjco.jpg)
 
-7. 木质书桌
+7. $15 木质书桌
 
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025024mv0zbnczii6d2g0d.jpg)
 
-9. 床+床垫+枕芯（前两者只能一起买）
+9. $199 床+床垫+枕芯
 
   [IKEA MALM bed frame full size](https://www.ikea.com/us/en/catalog/categories/departments/bedroom/16284/)
 
@@ -39,7 +39,7 @@ Master 毕业，物品全新货，使用了一年至一年半
 
   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025020ldxao1xmj1soerii.jpg)
 
-## 小件（大件买了可送点小件）
+## 小件（大件买了可送点小件）$5
 
 1. 厨具 - 刀、剪刀、锅套件、玻璃碗套件
 
@@ -80,11 +80,11 @@ Master 毕业，物品全新货，使用了一年至一年半
 
 ## 电子
 
-1. 鼠标 + 键盘  [Microsoft Natural Ergonomic Keyboard 4000 for Business - Wired](https://www.amazon.com/gp/product/B004SUIM4E/ref=ppx_yo_dt_b_asin_title_o03_s00?ie=UTF8&psc=1)
+1. $20 鼠标 + 键盘  [Microsoft Natural Ergonomic Keyboard 4000 for Business - Wired](https://www.amazon.com/gp/product/B004SUIM4E/ref=ppx_yo_dt_b_asin_title_o03_s00?ie=UTF8&psc=1)
 
    ![](https://images-na.ssl-images-amazon.com/images/I/41ubGV6Aw6L._SX180_.jpg)
 
-2. 湿度计 [ThermoPro TP55 Digital Hygrometer Indoor Thermometer Humidity Gauge with Jumbo Touchscreen and Backlight Temperature Humidity Monitor](https://www.amazon.com/gp/product/B06XTPTG1J/ref=ppx_yo_dt_b_asin_title_o09_s00?ie=UTF8&psc=1)
+2. $5 湿度计 [ThermoPro TP55 Digital Hygrometer Indoor Thermometer Humidity Gauge with Jumbo Touchscreen and Backlight Temperature Humidity Monitor](https://www.amazon.com/gp/product/B06XTPTG1J/ref=ppx_yo_dt_b_asin_title_o09_s00?ie=UTF8&psc=1)
 
    ![](https://images-na.ssl-images-amazon.com/images/I/51%2BTfrLM5iL._SY180_.jpg)
 
