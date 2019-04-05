@@ -38,6 +38,12 @@ Master 毕业，物品全新货，使用了一年至一年半
   [Coop Home Goods - Premium Adjustable Loft - Shredded Hypoallergenic Certipur Memory Foam Pillow with Washable Removable Cooling Bamboo derived Rayon Cover - Standard](https://www.amazon.com/gp/product/B01MTAIY84/ref=ppx_yo_dt_b_asin_title_o09_s00?ie=UTF8&psc=1)
 
   ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025020ldxao1xmj1soerii.jpg)
+  
+4. 储物箱
+
+  https://www.amazon.com/gp/product/B00V87C10Q/ref=ppx_yo_dt_b_asin_title_o08_s00?ie=UTF8&psc=1
+
+  ![](https://images-na.ssl-images-amazon.com/images/I/615GUav7%2BXL._SL1200_.jpg)
 
 ## 小件（大件买了可送点小件）$5
 
@@ -47,12 +53,6 @@ Master 毕业，物品全新货，使用了一年至一年半
    ![](http://www.ohioabc.com/data/attachment/forum/201904/02/025022smuc1wa119wuf16a.jpg)
 
 3. 衣架
-
-4. 储物箱
-
-  https://www.amazon.com/gp/product/B00V87C10Q/ref=ppx_yo_dt_b_asin_title_o08_s00?ie=UTF8&psc=1
-
-  ![](https://images-na.ssl-images-amazon.com/images/I/615GUav7%2BXL._SL1200_.jpg)
 
 5. 洗衣篮子
 
